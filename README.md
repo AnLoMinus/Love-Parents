@@ -1,6 +1,7 @@
 <div dir="rtl">
 
 # שיר לאבא ואמא 💝
+ [עמוד אינטרנטי לשיר](https://anlominus.github.io/Love-Parents/)
 
 שיר אהבה מרגש המוקדש להורים היקרים שלנו. השיר מבטא את הכרת התודה העמוקה, האהבה האינסופית והערכה לכל מה שהם העניקו לנו לאורך השנים. מלווה במנגינה עדינה של Golden Harmony, השיר מביא לידי ביטוי את הקשר המיוחד והבלתי ניתן לתיאור בין הורים לילדיהם.
 
